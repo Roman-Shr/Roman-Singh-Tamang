@@ -37,5 +37,3 @@ IT graduate with a background in UX/UI design and a professional Chef, currently
 - Dribbble: https://dribbble.com/tamangroman/shots
 - LinkedIn: https://www.linkedin.com/in/romant1022
 
-
-New change
